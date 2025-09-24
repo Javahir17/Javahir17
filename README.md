@@ -1,4 +1,4 @@
-# Hi 👋, I'm Habibulloh Nuriddin
+# Hi 👋, I'm Javaxir Farxodov
 
 I'm software engineer 👨🏻‍💻
 
